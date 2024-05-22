@@ -115,3 +115,42 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+Hot Chocolate Recipe
+Ingredients:
+-4 cups whole milk
+-1 cup heavy cream
+-1 cup semi-sweet chocolate chips or finely chopped semi-sweet chocolate
+-1/2 cup unsweetened cocoa powder
+-1/2 cup granulated sugar
+-1 teaspoon vanilla extract
+-A pinch of salt
+-Whipped cream (for topping)
+-Marshmallows (optional)
+-Chocolate shavings (optional)
+Instructions:
+Heat the Milk and Cream:
+In a medium-sized saucepan, combine the whole milk and heavy cream. Heat over medium heat until the mixture is hot but not boiling, stirring occasionally.
+
+Add the Chocolate:
+Reduce the heat to low and add the chocolate chips or chopped chocolate. Stir continuously until the chocolate is completely melted and the mixture is smooth.
+
+Incorporate Cocoa and Sugar:
+Whisk in the unsweetened cocoa powder and granulated sugar. Continue to whisk until both are fully dissolved and the mixture is well combined.
+
+Flavor and Season:
+Stir in the vanilla extract and a pinch of salt. These ingredients will enhance the flavor and balance the sweetness.
+
+Simmer:
+Let the hot chocolate simmer gently for about 5 minutes, stirring occasionally. This helps to thicken the hot chocolate and blend the flavors.
+
+Serve:
+Pour the hot chocolate into mugs. Top with a generous dollop of whipped cream, marshmallows, and a sprinkle of chocolate shavings if desired.
+
+Enjoy:
+Serve immediately and enjoy the rich, creamy taste of the Polar Express hot chocolate!
+
+Tips:
+For an extra indulgent treat, you can add a splash of peppermint extract or a pinch of cinnamon.
+If you prefer a dairy-free version, substitute the whole milk and heavy cream with your favorite plant-based milk (such as almond, oat, or coconut milk) and a dairy-free whipped topping.
+This hot chocolate recipe aims to bring the same warmth and joy as experienced on the Polar Express. Enjoy your magical cup!
